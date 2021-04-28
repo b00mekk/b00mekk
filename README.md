@@ -1,2 +1,2 @@
 ### sup im b00mek | 👋
-discord - > b00mek#8414  
+discord - > b00mek#6136
