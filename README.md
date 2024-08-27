@@ -1,2 +1,2 @@
 ### im b00mek 
-discord - > b00mek#6136
+discord - > b00mek
